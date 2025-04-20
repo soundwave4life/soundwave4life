@@ -3,6 +3,6 @@
 
 ![IMG_2814](https://github.com/user-attachments/assets/d9eab911-183c-459b-8672-557454983663)
 
-![IMG_2816](https://github.com/user-attachments/assets/dba5446b-3915-470b-8ffe-f6ffbf36a132)
+![IMG_2817](https://github.com/user-attachments/assets/f93ca28a-884c-4306-9b8c-a3dfc76b6212)
 
 i love shockwave guys
